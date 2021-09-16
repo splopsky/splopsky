@@ -5,7 +5,7 @@
 
 * 🧑‍🚀 Currently a student studying Computer Science
 * 🎞️ Like to watch Movies and listen to Music
-* 🦤 Slow but Steady, __Study Hard__!! 🔥🔥🔥
+* 🦤 Slow but Steady, _Study Hard_!! 🔥🔥🔥
 
 You can visit my blog for more of my personal studies and my daily logs!
 👇👇👇
