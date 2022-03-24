@@ -13,6 +13,5 @@
 --!>
 
 You can visit my blog for more of my personal studies and my daily logs!
-
 * 📚 [My study Blog](https://splopsky.tistory.com/)
 * 😎 [My hobby Blog](https://blog.naver.com/hebin810)
