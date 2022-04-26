@@ -4,7 +4,7 @@
 💻 This is Hyebin Lee's Github
 
 * 🧑‍🚀 Currently a student studying Computer Science
-* 🐛 I also like studying biology especially in fields of Physiology, Ecology, and Ethology
+* 🐛 I also like studying Biology
 * 🎞️ Like to watch Movies and listen to Music
 * 🦤 Slow but Steady, _Study Hard!!_ 🔥🔥🔥
 
