@@ -1,9 +1,7 @@
-# 🦥Welcome!🦚
+*🦥Welcome to Hyebin's Github!🦚*
 
-
-💻 This is Hyebin Lee's Github
-
-
+- Welcome to my humble git-home. 🏡
+---
 
 
 <!--
